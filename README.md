@@ -1,1 +1,0 @@
-# AselArgynbek.github.io
